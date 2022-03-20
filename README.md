@@ -5,7 +5,7 @@ About DWR:
 
 EthernalSenses(Rusty) - Creator, Coder
 
-WezyCav(BLooDY) - Designer ублюдок мать твою
+WezyCav(BLooDY) - Designer
 
 DEAD-DJ(!BᗩLUX_DJ►) - Designer
 
